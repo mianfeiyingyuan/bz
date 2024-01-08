@@ -1,11 +1,11 @@
 # B影院
 :sunglasses::sunglasses:B影院 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站地址防迷路】 ：https://bbailu.com
+:heart: :point_right: 【本站地址防迷路】 ：https://bbaiaihe.com
 ------
-:heart: :point_right: 【地址二】 ：https://bbailo.com
+:heart: :point_right: 【地址二】 ：https://bbaiaiji.com
 ------
-:heart: :point_right: 【地址三】 ：https://bbaiku.com
+:heart: :point_right: 【地址三】 ：https://bbaiaika.com
 ------
 :heart: :point_right: 【地址四】 ：https://bbaihu.com
 ------
